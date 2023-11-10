@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RAresNuDaGresh
+- 👋 Hi, I’m @RaresSocaciu
 - 👀 I’m interested in networking,cybersecurity.
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
